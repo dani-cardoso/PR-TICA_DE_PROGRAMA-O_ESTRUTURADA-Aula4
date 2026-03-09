@@ -1,0 +1,2 @@
+# PR-TICA_DE_PROGRAMA-O_ESTRUTURADA-Aula4
+Atividades 3, 5, 6 e 7
